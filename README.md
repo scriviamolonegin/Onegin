@@ -1,2 +1,2 @@
 # Onegin
-Manca un Puskin italiano, scriviamolo!
+Sto scrivendo un poema. Seguitemi e consigliatemi, se vi va.
